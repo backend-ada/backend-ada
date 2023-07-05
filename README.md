@@ -1,6 +1,6 @@
-# ► ADA ITW - ¡BACKEND! ◄
+# ADA ITW - ¡BACKEND!
 
-## ¡Bienvenidas! 🔥🔥🔥
+## 🔥🔥 ¡Bienvenidas! 🔥🔥
 
 > “Creo poseer la más singular combinación de cualidades que me hacen una preeminente descubridora de las realidades ocultas de la naturaleza.”
 >
